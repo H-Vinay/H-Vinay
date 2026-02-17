@@ -19,7 +19,7 @@
 
 
 📧 Email: [hvinayet1@gmail.com]   
-💼 LinkedIn:[https://www.linkedin.com/in/h-vinay]
+💼 LinkedIn:[https://www.linkedin.com/in/h-vinay/]
 
 
 ## Thanks for visiting! ⭐ Feel free to check out my projects.
