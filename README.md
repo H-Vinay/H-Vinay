@@ -1,4 +1,4 @@
-## Hi there 👋 I'm H Vinay
+## Hey there 👋 I'm H Vinay
 
 
 🎯 Aspiring Software Engineer skilled in Python, Java and SQL.  
