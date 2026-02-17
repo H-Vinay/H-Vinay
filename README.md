@@ -18,7 +18,7 @@
 ## Connect with me
 
 
-📧 Email: [hvinayet1@gmail.com]
+📧 Email: [hvinayet1@gmail.com]   
 💼 LinkedIn:[https://www.linkedin.com/in/h-vinay]
 
 
